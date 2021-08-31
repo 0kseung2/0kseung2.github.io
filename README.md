@@ -1,1 +1,0 @@
-# 0kseung2.github.io
